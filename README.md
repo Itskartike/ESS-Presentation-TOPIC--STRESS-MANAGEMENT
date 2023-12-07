@@ -98,3 +98,72 @@ productivity in the workplace and classroom, increased health risks, and relatio
 name just a few.
 
 # Managing Stress
+As noted in the Introduction, you can learn to manage stress. The first step is understanding
+yourself better—how you react in different situations, what causes you stress, and how you
+behave when you feel stressed. Once you’ve done that, take the following steps:
+
+Set priorities:- Use the time-management tips you learned in Section 1. Make a To-Do
+list. Decide what is really important to get done today, and what can wait. This helps
+you to know that you are working on your most immediate priorities, and you don’t
+have the stress of trying to remember what you should be doing.
+
+Practice facing stressful moments:- Think about the event or situation you expect to
+face and rehearse your reactions. Find ways to practice dealing with the challenge. If
+you know that speaking in front of a group frightens you, practice doing it, perhaps 
+with a trusted friend or fellow student. If the pressure of taking tests causes you to
+freeze up, buy some practice tests at the school bookstore or online and work with
+them when there are no time pressures.
+
+Examine your expectations:- Try to set realistic goals. It’s good to push yourself to achieve,
+but make sure your expectations are realistic. Watch out for perfectionism. Be satisfied
+with doing the best you can. Nobody’s perfect—not you, not your fellow Cadet, nobody.
+Allow people the liberty to make mistakes, and remember that mistakes can be a good
+teacher
+
+Live a healthy lifestyle:- Get plenty of exercise. Eat healthy foods. Allow time for rest and
+relaxation. Find a relaxation technique that works for you—prayer, yoga, meditation,
+or breathing exercises. Look for the humor in life, and enjoy yourself.
+
+Learn to accept change as a part of life. Nothing stays the same. Develop a support system
+of friends and relatives you can talk to when needed. Believe in yourself and your
+potential. Remember that many people from disadvantaged backgrounds have gone
+on to enjoy great success in life.
+
+At the same time, avoid those activities that promise release from stress while actually
+adding to it. Drinking alcohol (despite what all those TV commercials imply), drinking
+caffeine, smoking, using narcotics (including marijuana), and overeating all add to the
+body’s stress in addition to their other harmful effects.
+Here are some other strategies for dealing with stress:
+
+• Schedule time for vacation, breaks in your routine, hobbies, and fun activities.
+
+• Try to arrange for uninterrupted time to accomplish tasks that need your
+concentration. Arrange some leisure time during which you can do things that you
+really enjoy.
+
+• Avoid scheduling too many appointments, meetings, and classes back-to-back.
+Allow breaks to catch your breath. Take a few slow, deep breaths whenever you
+feel stressed. Breathe from the abdomen and, as you exhale, silently say to yourself,
+“I feel calm.”
+
+• Become an expert at managing your time. Read books, view videos, and attend
+seminars on time management. Once you cut down on time wasters, you’ll find
+more time to recharge yourself.
+
+• Learn to say “no.” Setting limits can minimize stress. Spend time on your main
+responsibilities and priorities rather than allowing other people’s priorities or needs
+to dictate how you spend your time.
+
+• Exercise regularly to reduce muscle tension and promote a sense of well-being.
+
+• Tap into your support network. Family, friends, and social groups can help when
+dealing with stressful events.
+
+
+#Conclusion
+Stress can have consequences far beyond temporary feelings of pressure. While
+you can’t avoid stress, you can learn to manage it and develop skills to cope with
+the events or situations you find stressful. By learning to cope with stress, and by
+recognizing the symptoms of depression and the warning signs of suicide, you’ll
+be better prepared to help not only yourself, but also friends, fellow students, and
+the Soldiers you will someday lead.
