@@ -23,20 +23,30 @@ The most frequent reasons for “stressing out” fall into three main categorie
 1. The unsettling effects of change
 2. The feeling that an outside force is challenging or threatening you
 3. The feeling that you have lost personal control.
+4. 
 Life events such as marriage, changing jobs, divorce, or the death of a relative or friend
 are the most common causes of stress. Although life-threatening events are less common,
 they can be the most physiologically and psychologically acute. They are usually associated
 with public service career fields in which people experience intense stress levels because
 of imminent danger and a high degree of uncertainty—police officer, fire and rescue worker,
 emergency relief worker, and the military.
+
 You may not plan to enter a high-stress career, but as a college student, you may find
 that the demands of college life can create stressful situations. The National Institute of
 Mental Health (NIMH) notes some of the more common stressors for college students:
+
 • Increased academic demands 
+
 • Being on your own in a new environment
+
 • Changes in family relations
+
 • Financial responsibilities
+
 • Changes in your social life
+
 • Exposure to new people, ideas, and temptations
+
 • Awareness of your sexual identity and orientation
+
 • Preparing for life after graduation
