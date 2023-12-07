@@ -160,7 +160,8 @@ to dictate how you spend your time.
 dealing with stressful events.
 
 
-#Conclusion
+# Conclusion
+
 Stress can have consequences far beyond temporary feelings of pressure. While
 you can’t avoid stress, you can learn to manage it and develop skills to cope with
 the events or situations you find stressful. By learning to cope with stress, and by
