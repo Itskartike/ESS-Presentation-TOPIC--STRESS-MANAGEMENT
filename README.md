@@ -97,3 +97,4 @@ A sustained high level of stress is no laughing matter. It can affect every area
 productivity in the workplace and classroom, increased health risks, and relationships, to
 name just a few.
 
+# Managing Stress
