@@ -23,7 +23,7 @@ The most frequent reasons for “stressing out” fall into three main categorie
 1. The unsettling effects of change
 2. The feeling that an outside force is challenging or threatening you
 3. The feeling that you have lost personal control.
-4. 
+
 Life events such as marriage, changing jobs, divorce, or the death of a relative or friend
 are the most common causes of stress. Although life-threatening events are less common,
 they can be the most physiologically and psychologically acute. They are usually associated
