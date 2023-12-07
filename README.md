@@ -49,3 +49,32 @@ Mental Health (NIMH) notes some of the more common stressors for college student
 • Awareness of your sexual identity and orientation
 
 • Preparing for life after graduation
+
+# Symptoms of Distress
+Symptoms of stress fall into three general, but interrelated, categories—physical, mental,
+and emotional. Review this list carefully. If you find yourself frequently experiencing
+these symptoms, you are likely feeling distressed:
+• Headaches 
+• Fatigue 
+• Gastrointestinal problems 
+• Hypertension (high blood pressure) 
+• Heart problems, such as palpitations
+• Inability to focus/lack of concentration 
+• Sleep disturbances, whether it’s sleeping too much or an inability to sleep 
+• Sweating palms/shaking hands 
+• Anxiety 
+• Sexual problems.
+Even when you don’t realize it, stress can cause or contribute to serious physical
+disorders. It increases hormones such as adrenaline and corticosterone, which affect your
+metabolism, immune reactions, and other stress responses. That can lead to increases in
+your heart rate, respiration, blood pressure, and physical demands on your internal organs.
+Behavioral changes are also expressions of stress. They can include:
+• Irritability 
+• Disruptive eating patterns (overeating or under eating) 
+• Harsh treatment of others 
+• Increased smoking or alcohol consumption 
+• Isolation 
+• Compulsive shopping
+A sustained high level of stress is no laughing matter. It can affect every area of your life—
+productivity in the workplace and classroom, increased health risks, and relationships, to
+name just a few.
